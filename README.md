@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Newlnwza2077
+- 👀 I’m interested in ... Cyber Security and Web Developer
+- 🌱 I’m currently learning ... HTML , CSS , JavaSCcript and Python
+- 💞️ I’m looking to collaborate ... with IT company (something like that)
+- 📫 How to reach me ... You can contact me by wrpcrdz@gmail.com
